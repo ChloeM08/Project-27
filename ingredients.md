@@ -1,0 +1,1 @@
+Chicken, rice, eggs, flour, bread crumbs.
